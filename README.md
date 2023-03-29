@@ -1,1 +1,1 @@
-# Opensource project made in Africa
+# Amazing opensource project made in Africa
